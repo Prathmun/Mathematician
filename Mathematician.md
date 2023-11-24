@@ -1,0 +1,11 @@
+
+
+[[Linear Algebra]]
+
+
+
+
+
+
+
+#Cyberneticist
